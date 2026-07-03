@@ -1,0 +1,1 @@
+# Mapa-De-Calor-Potencial-Teomag
